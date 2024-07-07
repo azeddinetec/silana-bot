@@ -1,7 +1,7 @@
 /*
 wa.me/6282285357346
 github: https://github.com/sadxzyq
-Instagram: https://instagram.com/tulisan.ku.id
+Instagram: Instagram azeddine 
 ini wm gw cok jan di hapus
 */
 
